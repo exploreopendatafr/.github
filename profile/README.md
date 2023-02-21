@@ -1,3 +1,3 @@
 # EXOD: Explore Open Data (FR)
 
-![](https://imgur.com/a/2bxjR4e)
+![](https://i.imgur.com/ze3CeOo.png)
